@@ -50,6 +50,6 @@ Resist the adoption of international treaties that could allow unelected institu
 
 ## Recognition of Palestine
 
-The UK should join many other countries around the world, as well as the UN, and officially recognise Palestine as a sovereign state. This is in line with our existing national preference for a two-state solution to the Israel/Palestine conflict in accordance with international law.
+The UK should join many other countries around the world, as well as the UN, and officially recognise Palestine as a sovereign state. The UK should cease all trading with Israel until they remove the wall and evacuate all settlements. 
 
 [^1]: [Investor-state dispute settlement (ISDS) and the Transatlantic Trade and Investment Partnership (TTIP) - Commons Library Standard Note](http://www.parliament.uk/business/publications/research/briefing-papers/SN06777/investorstate-dispute-settlement-isds-and-the-transatlantic-trade-and-investment-partnership-ttip)
